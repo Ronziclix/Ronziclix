@@ -33,6 +33,7 @@ Founder of **Ronziclix**. Desenvolvedor Web e Editor de Vídeo focado em criar s
 ## 📫 Let's Connect
 
 * **Instagram:** [https://www.instagram.com/ronziclix/](https://www.instagram.com/ronziclix/)
+* **WhatsApp:** [https://wa.me/5516996053038?text=Olá,%20Como%20vai?%20vim%20pelo%20seu%20link,%20Poderia%20me%20ajudar](https://wa.me/5516996053038?text=Olá,%20Como%20vai?%20vim%20pelo%20seu%20link,%20Poderia%20me%20ajudar)
 
 ---
 
